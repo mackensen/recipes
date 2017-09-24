@@ -6,7 +6,7 @@ This is a derivative of [Pasta with Olive Oil And Garlic](http://www.food.com/re
 - Salt and pepper
 - 3/4 teaspoon of minced garlic
 - 1/4 teaspoon of red pepper flakes
-- 1 tablespoon of tomatoes
+- 1/4 cup of green olives
 - Two splashes of olive oil
 - 1 teaspoon of basil
 
@@ -15,7 +15,9 @@ This is a derivative of [Pasta with Olive Oil And Garlic](http://www.food.com/re
 Steps
 
 1. Cook the spaghetti in boiling water, adding salt.
-2. Fry the garlic and tomatoes in the olive oil. Don't brown it all the way. This will be quick.
-3. Take the garlic off the heat; add basil, red pepper, salt, and pepper.
-4. Drain the pasta.
-5. Mix everything.
+2. Halve the olives.
+3. Fry the garlic and olives in the olive oil. Don't brown the garlic all the way. This will be quick.
+4. Take the garlic off the heat; add basil, red pepper, salt, and pepper.
+5. Drain the pasta.
+6. Mix everything.
+7. Serve with a piece of bread for the excess olive oil and basil.

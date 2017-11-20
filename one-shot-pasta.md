@@ -8,7 +8,7 @@ This is a derivative of [Pasta with Olive Oil And Garlic](http://www.food.com/re
 - 1/4 teaspoon of red pepper flakes
 - 1/4 cup of green olives
 - Two splashes of olive oil
-- 1 teaspoon of basil
+- 1/2 teaspoon of basil
 
 (Serves one)
 

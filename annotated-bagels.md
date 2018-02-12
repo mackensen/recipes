@@ -18,10 +18,10 @@ Steps:
 5. Make a well in the middle of the mixer bowl. Add the yeast mixture.
 6. Install the mixer bowl in the mixer. Lock in place. Attach the paddle.
 7. Set mixer to the lowest setting, "stir." Set timer to 2 minutes.
-8. While stirring, at 1/4 cup of water to the edge of the mixer bowl. Do this twice, at intervals.
+8. While stirring, at  2/3 cup of the warm water to the edge of the mixer bowl. After 30-40 seconds, add another 1/4 cup to the edge .
 9. After two minutes stop the mixer, clean the dough off the paddle, and add 1/4 cup of water to the bottom of the bowl. Stir for two more minutes.
 10. Ensure dough has clumped to solid mass and does not stick to the bowl.
-11. Remove the paddle from the mixer and attach the dough hook. Set mixer to "stir" and set the timer to 10 minutes.
+11. Remove the paddle from the mixer and attach the dough hook. Set mixer to "stir" and set the timer to 8 minutes.
 12. Remove dough from mixer bowl, oil the bowl, and return the dough to the bowl. Manually remove imperfections. Cover mixer bowl with a towel. Wait for one hour.
 13. Leave dough in the mixer bowl. "Punch down" to remove air bubbles. Let sit uncovered for 10 minutes.
 14. Weigh the dough on the kitchen scale, then divide into 12 equal parts.

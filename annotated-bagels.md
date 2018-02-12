@@ -31,5 +31,5 @@ Steps:
 18. Beat the egg in a cup with one teaspoon of water and 1/2 teaspoon salt.
 19. Cover a large cooking sheet with parchment paper.
 20. For each bagel: lower into boiling water for 1 minute, flip, and boil for another minute. Do four bagels at a time. Bagels will float.
-21. Place each bagel on the sheet, then brush with the egg wash. Add toppings. Bagels should be 4 x 3 on the sheet.
+21. Place each bagel on the sheet, then brush with the egg wash. Add toppings.
 22. Bake for 25-30 minutes. Bagels should be golden brown.

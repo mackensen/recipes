@@ -18,7 +18,6 @@ Steps:
 3. When meat is fully browned, turn heat down to medium. Add the tomatoes and green chiles.
 4. Optionally add mushrooms. Break them up as you did with the ground beef and stir into the mix.
 5. Cook on medium heat, stirring occasionally, until the liquid has evaporated.
-6. 6:18 -- ingredients added and mixed; cook on medium heat until liquid has evaporated. 15-20 minutes.
 
 ### Serving option
 

@@ -2,12 +2,12 @@
 
 This is a derivative of [Pasta with Olive Oil And Garlic](http://www.food.com/recipe/pasta-with-olive-oil-and-garlic-8634), knocked down for one person.
 
-- 1/8 lb spaghetti
+- 1/8 lb spaghetti (~420 cal)
 - Salt and pepper
 - 3/4 teaspoon of minced garlic
 - 1/4 teaspoon of red pepper flakes
-- 1/4 cup of green olives
-- Two splashes of olive oil
+- 1/4 cup of green olives (~50 cal)
+- Two splashes of olive oil (~120 cal)
 - 1/2 teaspoon of basil
 
 (Serves one)

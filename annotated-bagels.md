@@ -3,10 +3,10 @@
 Ingredients:
 
 - 3 teaspoons active dry yeast
-- 6 3/4 tsp white sugar
+- 6 3/4 teaspoons white sugar
 - 2 cups warm water
 - 5 1/4 cups bread flour
-- 2 tsp salt
+- 2 teaspoons salt
 - 1 egg
 
 Steps:

@@ -11,7 +11,7 @@
 ### Steps
 
 1. In a large mixing bowl, whisk together the flour, salt, sugar, and instant yeast.
-2. Heat 2 cups of water to 110 degrees. This will take two minutes on high.
+2. Heat 2 cups of water to 110 degrees. This will take two minutes on high (electric) or medium (gas).
 3. Add the water to the flour mixture; mix until the flour is absorbed.
 4. Cover the bowl with a tea towel and set aside in a warm spot to rise for at least an hour.
 5. Punch down the dough: use a spatula to start at the edge, go a quarter way around the outside, then turn the dough over into the center. Repeat until dough is no longer clinging to the sides and "punched down" in the center.

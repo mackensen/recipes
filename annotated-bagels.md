@@ -11,7 +11,7 @@ Ingredients:
 
 Steps:
 
-1. Heat 2 cups of water to 110 degrees. This will take two minutes on high.
+1. Heat 2 cups of water to 110 degrees. This will take two minutes on high (electric) or medium (gas).
 2. Pour 3/4 cups of the water into a 1 cup measuring cup.
 3. Add the sugar and the yeast to the water. After five minutes, stir the mixture to dissolve the yeast. Continue.
 4. Add the bread flour and the salt to the mixer bowl. Mix manually.

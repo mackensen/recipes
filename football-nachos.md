@@ -21,7 +21,7 @@ Steps:
 
 ### Serving option
 
-1. Turn on the broiler and set 525 degrees F.
+1. Turn on the broiler and set 425 degrees F.
 2. Cover a large pan with foil. Layer large restaurant-style tortilla chips over the foil. Cover the chips with the meat mixture, then layer on shredded cheese.
 3. Create a second layer over top of the first, beginning with the chips.
-4. Put the pan in the broiler and cook for 5 minutes or until cheese has fully melted.
+4. Put the pan in the broiler on the lowest rack and cook for 5 minutes or until cheese has fully melted.
